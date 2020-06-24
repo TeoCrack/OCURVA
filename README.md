@@ -1,0 +1,2 @@
+# OCURVA
+JA pIERDOLE
